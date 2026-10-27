@@ -226,4 +226,4 @@ The Sims 2 is available as a full free version, including all features and updat
 Ready to unlock your creativity? Download The Sims 2 now and start building your virtual life today!
 
 ---
-**Last updated:** 2026-10-27 18:25:34 UTC
+**Last updated:** 2026-10-27 22:41:37 UTC
